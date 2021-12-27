@@ -1,15 +1,3 @@
-## Nummerpraat
+Nummerpraat is gebruik je via [WhatsApp](https://wa.me/3197010241410?text=Hey).
 
-+3197010241410
-
-Nummerplaat is een idee van Tim van Heugten (Huge10)
-
-Spoorsingel 6A
-
-3033 GK Rotterdam
-
-
-
-KvK: 08108667
-
-BTW nr: NL001377961B68
+Met Nummerpraat koppel je je kenteken aan je telefoonnummer. Andere gebruikers kunnen jou vervolgens een bericht sturen op basis van jouw kenteken. Deze berichten ontvang je per SMS. Telefoonnummers worden nooit getoond aan een ontvanger. Nummerpraat werkt als een 'doorgeefluik' waarmee je dus berichten tussen twee voertuigen kunt sturen.
