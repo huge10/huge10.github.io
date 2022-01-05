@@ -1,0 +1,1 @@
+Heel erg bedankt dat je een autosticker hebt besteld. Als de betaling is verwerkt, sturen we je de sticker binnen 10 werkdagen op. Naast de sticker heb je met jouw donatie ook Nummerpraat gesteund. Het in de lucht houden van Nummerpraat is een kostbare zaak, dus jouw bijdrage helpt het project enorm.
